@@ -1,5 +1,13 @@
-- 👋 Hi, I’m Arcti / Gay Red Panda
-- 👀 I’m interested in   g a m i n g 
-- 🌱 I’m currently working on a Discord Music Bot, because I just feel like it
-- 📫 How to reach me: Arcti.cc#2272
-I won't do much here, just look around somewhere else. Nothing to see here
+Just a Gay Red Panda
+Probably a Femboy as well
+I sometimes do stuff, but I don't post because why
+
+Here some links... I think
+Discord - https://discordapp.com/users/417394305066467338
+Twitch - https://www.twitch.tv/arcti_cc
+YouTube - https://www.youtube.com/channel/UCQL7skXAvbW5C6-3rIB4ILw
+Twitter - https://twitter.com/Arcti_cc
+Telegram - https://t.me/Arcti_cc
+
+and my Linktree, because why not at this point
+https://linktr.ee/Arcti.cc
