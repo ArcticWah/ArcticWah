@@ -1,13 +1,11 @@
-Just a Gay Red Panda  
-Probably a Femboy as well   
-I sometimes do stuff, but I don't post because why  
-  
-Here some links... I think  
-Discord - https://discordapp.com/users/417394305066467338     
-Twitch - https://www.twitch.tv/arcti_cc   
-YouTube - https://www.youtube.com/channel/UCQL7skXAvbW5C6-3rIB4ILw  
-Twitter - https://twitter.com/Arcti_cc  
-Telegram - https://t.me/Arcti_cc  
-  
-and my Linktree, because why not at this point  
-https://linktr.ee/Arcti.cc  
+# Hey there, my name is Arcti.
+I am a Red Panda who has too much to do but also too little.
+I don't know a lot of things, but I always try to learn new stuff.
+
+You can find me on some other platforms, like
+[Twitter](https://twitter.com/Arcti_cc)
+... yeah that's it honestly
+
+Feel free to message me if you just wanna chat.
+[Signal](https://signal.me/#eu/giFo1cgDaq9FHXh5kV3CbYXEUJH4vAfbG8f1HepFdbkXufAlUO5LBJUjiDhXOLDA) @woof.99
+I’m always up to help *(except when I’m sleeping)*
